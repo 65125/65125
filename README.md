@@ -1,5 +1,5 @@
 65125
-Open
+
 
 - 👋 Hi, I’m @65125
 - 👀 I’m interested in ...
